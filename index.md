@@ -26,4 +26,4 @@ Dyla is not intended for children under 13.
 This policy may be updated from time to time.
 
 ## Contact
-Email: your@email.com
+Email: nyashachideme4@gmail.com
